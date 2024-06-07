@@ -1,6 +1,15 @@
-## Bem vindos ao meu perfil!!💕
+💕Bem vindos ao meu perfil!!💕
 
-Meu nome é Karen 
+ 🖤meu nome é Karen!🖤
+
+🎸
+🏳‍🌈
 
 
+ 
+![](https://media.tenor.com/sFtn4OPTo0EAAAAM/ateez-atiny.gif)
+
+
+
+ 
 <!--
